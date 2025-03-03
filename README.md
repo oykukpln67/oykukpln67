@@ -1,5 +1,5 @@
 ## Hi there I am Oyku 👋
-- I live in Sancaktepe
+- I'm depressed
 <!--
 **oykukpln67/oykukpln67** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
